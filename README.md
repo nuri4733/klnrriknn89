@@ -1,1 +1,1 @@
-# kurdos
+# 19 mayıs
